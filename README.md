@@ -1,5 +1,5 @@
 ### Hi there 👋
-
+Currently seeking a Summer 2024 Co-op☀️
 <!--
 **sam-peacock1/sam-peacock1** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
